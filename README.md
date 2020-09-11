@@ -1,4 +1,4 @@
-## Welcome to gqyhbq's personalpages(for testing)
+## Welcome to gqyhbq's personalpages
 
 ### 自我介绍
 1. 姓名：魏楚荣
